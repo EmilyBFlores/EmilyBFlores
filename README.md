@@ -5,8 +5,6 @@ I’m interested in psychology and computer science — I love putting my critic
 
 💞️ I’m looking to collaborate on projects that combine psychology, data analysis, and creative tech — especially anything related to mental health, AI, or human-computer interaction.
 
-📫 Reach me at: emilyf246@gmail.com | 925-664-3375
-
 😄 Pronouns: she/her
 
 ⚡ Fun fact: I love making songs and mixing my vocals using music production software!
