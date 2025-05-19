@@ -1,5 +1,5 @@
 Hi, I’m @EmilyBFlores
-👀 I’m interested in psychology and computer science — I love putting my critical thinking skills to work. I’m especially fascinated by how data, statistics, and human behavior intersect in both fields.
+I’m interested in psychology and computer science — I love putting my critical thinking skills to work. I’m especially fascinated by how data, statistics, and human behavior intersect in both fields.
 
 🌱 I’m currently learning about why people do the things they do and exploring how tech can help us understand the mind.
 
